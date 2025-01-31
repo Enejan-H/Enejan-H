@@ -1,5 +1,5 @@
 # 💫 About Me:
- Experienced Data Scientist/ML-AI Engineer with 1+ year of expertise <br> 3+ years of mathematics teaching experience<br>open to innovative ideas and collaborations<br>
+ Experienced Data Scientist/ML-AI Engineer with 1.5+ year of expertise <br> 3+ years of mathematics teaching experience<br>open to innovative ideas and collaborations<br>
 
 
 ## 🌐 Socials:
